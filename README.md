@@ -1,0 +1,1 @@
+# sPg-Mining-Head-Module-Gadget-Osszehasonl-to
